@@ -1,0 +1,1 @@
+# Naoya-Configura-oes-aleatorias-FE
